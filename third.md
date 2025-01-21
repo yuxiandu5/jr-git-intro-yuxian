@@ -1,1 +1,0 @@
-Hi, do you know Yuqi?
